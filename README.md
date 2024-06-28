@@ -1,1 +1,1 @@
-Project 69 - Kutiyas!
+Project 69 - Only for Kutiyas!
